@@ -1,4 +1,4 @@
-# Rommer# Rommer Pinangay
+# Rommer Pinangay
 **Customer Experience Professional | Technical Support Specialist | Operations Leader**  
 📍 Quezon City, Metro Manila, Philippines | ✉️ rommer.pinangay@email.com | 🔗 linkedin.com/in/rommerpinangay
 
